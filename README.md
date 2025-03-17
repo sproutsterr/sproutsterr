@@ -13,8 +13,6 @@ hello!!! hii!!!! please call me sprout!
 
 i'm normally seen on ashes town w/ my friends!! if you see me running around or ooc, dont be afraid to interact w/ me ^_^
 
-![berry-strawberry](https://github.com/user-attachments/assets/26769672-672a-4774-9330-ff171c62b93f)
-
 i can be VERY unfiltered if im comfortable w/ you, pls let me know if i make you uncomfy
 
 ![39551248-kcbq8ied-v4](https://github.com/user-attachments/assets/3473f85c-5333-443f-a77a-a9cc1b84bb80)
