@@ -1,4 +1,5 @@
-![divider-rainbow](https://github.com/user-attachments/assets/4e5a2c89-b89b-41db-acd4-a74f1354d6a5)
+![cake-sweet](https://github.com/user-attachments/assets/71d8c6db-6c3e-4171-9061-3e2eec51a477)
+
 
 hello!!! ^_^ please call me sprout!
 
@@ -6,7 +7,7 @@ hello!!! ^_^ please call me sprout!
 
 i'm quite the avid ashes town player so dont be afraid to interact w/ me
 
-![divider](https://github.com/user-attachments/assets/b77f7ae6-beff-4f78-9b7b-b3ce8e9429b6)
+![berry-strawberry](https://github.com/user-attachments/assets/26769672-672a-4774-9330-ff171c62b93f)
 
 
 
