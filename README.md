@@ -1,15 +1,17 @@
 
 ![cake-sweet](https://github.com/user-attachments/assets/71d8c6db-6c3e-4171-9061-3e2eec51a477)
 
+hello!!! hii!!!! please call me sprout!
 
-hello!!! ^_^ please call me sprout!
+![34d46968bd54f28c73bd45a57f36cd9d](https://github.com/user-attachments/assets/bf26dfdd-c02d-4e3b-acc9-da7d349947c8)
+
 
 | multifandom geek + artist & VA | lvl 14 | fictkin!!! | audhd & dyslexia, pls be patient w/ me |
 
 ![divider-yeah](https://github.com/user-attachments/assets/d8a357f1-f84b-4fe7-83fa-60a8a7e0e7c4)
 
 
-i'm quite the avid ashes town player so dont be afraid to interact w/ me
+i'm normally seen on ashes town w/ my friends!! if you see me running around or ooc, dont be afraid to interact w/ me ^_^
 
 i can be VERY unfiltered if im comfortable w/ you, pls let me know if i make you uncomfy
 
