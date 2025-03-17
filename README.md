@@ -9,6 +9,7 @@ i'm quite the avid ashes town player so dont be afraid to interact w/ me
 
 ![berry-strawberry](https://github.com/user-attachments/assets/26769672-672a-4774-9330-ff171c62b93f)
 
+![8a8883c94f78143](https://github.com/user-attachments/assets/d8a26a06-59ad-487e-b30a-52f92951b31c)
 
 
 
