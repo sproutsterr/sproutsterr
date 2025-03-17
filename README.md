@@ -7,9 +7,14 @@ hello!!! ^_^ please call me sprout!
 
 i'm quite the avid ashes town player so dont be afraid to interact w/ me
 
+i can be VERY unfiltered if im comfortable w/ you, pls let me know if i make you uncomfy
+
 ![berry-strawberry](https://github.com/user-attachments/assets/26769672-672a-4774-9330-ff171c62b93f)
 
-![white-and-red-aesthetic](https://github.com/user-attachments/assets/deba6b8f-0718-42ef-9d45-9c08efa184a0)
+![39551248-kcbq8ied-v4](https://github.com/user-attachments/assets/8194d838-5c61-46b9-bf92-e60e8fcc5c61)
+
+
+
 
 
 
