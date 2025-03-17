@@ -1,6 +1,8 @@
 ![divider-rainbow](https://github.com/user-attachments/assets/4e5a2c89-b89b-41db-acd4-a74f1354d6a5)
 
-hello!!! ^_^ please call me sprout! multifandom geek + artist & VA
+hello!!! ^_^ please call me sprout!
+
+| multifandom geek + artist & VA | lvl 14 | fictkin!!! | audhd & dyslexia, pls be patient w/ me |
 
 i'm quite the avid ashes town player so dont be afraid to interact w/ me
 
