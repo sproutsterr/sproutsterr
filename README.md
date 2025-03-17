@@ -3,8 +3,7 @@
 
 hello!!! hii!!!! please call me sprout!
 
-![34d46968bd54f28c73bd45a57f36cd9d](https://github.com/user-attachments/assets/bf26dfdd-c02d-4e3b-acc9-da7d349947c8)
-
+![39551248-kcbq8ied-v4](https://github.com/user-attachments/assets/38a81b28-5332-4fbf-abf0-3cfff96483be)
 
 | multifandom geek + artist & VA | lvl 14 | fictkin!!! | audhd & dyslexia, pls be patient w/ me |
 
@@ -13,30 +12,8 @@ hello!!! hii!!!! please call me sprout!
 
 i'm normally seen on ashes town w/ my friends!! if you see me running around or ooc, dont be afraid to interact w/ me ^_^
 
-i can be VERY unfiltered if im comfortable w/ you, pls let me know if i make you uncomfy
-
 ![berry-strawberry](https://github.com/user-attachments/assets/26769672-672a-4774-9330-ff171c62b93f)
 
-![39551248-kcbq8ied-v4](https://github.com/user-attachments/assets/8194d838-5c61-46b9-bf92-e60e8fcc5c61)
+i can be VERY unfiltered if im comfortable w/ you, pls let me know if i make you uncomfy
 
-
-
-
-
-
-
-
-<!--
-**sproutsterr/sproutsterr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![39030826-gjidpwv4-v4](https://github.com/user-attachments/assets/99e64c49-4991-4613-9052-7d75f2d72432)
