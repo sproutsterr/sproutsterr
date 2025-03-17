@@ -1,4 +1,9 @@
-## Hi there 👋
+![divider-rainbow](https://github.com/user-attachments/assets/4e5a2c89-b89b-41db-acd4-a74f1354d6a5)
+
+
+hello!!! ^_^ please call me sprout! multifandom geek + artist & VA
+i'm quite the avid ashes town player so dont be afraid to interact w/ me
+
 
 <!--
 **sproutsterr/sproutsterr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
