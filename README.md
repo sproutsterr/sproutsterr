@@ -6,6 +6,9 @@ hello!!! ^_^ please call me sprout!
 
 i'm quite the avid ashes town player so dont be afraid to interact w/ me
 
+![divider-aesthetic](https://github.com/user-attachments/assets/35ad53a9-39cc-4da6-90d7-938db608ff3b)
+
+
 
 <!--
 **sproutsterr/sproutsterr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
