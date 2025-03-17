@@ -6,7 +6,8 @@ hello!!! ^_^ please call me sprout!
 
 i'm quite the avid ashes town player so dont be afraid to interact w/ me
 
-![divider-aesthetic](https://github.com/user-attachments/assets/35ad53a9-39cc-4da6-90d7-938db608ff3b)
+![divider](https://github.com/user-attachments/assets/b77f7ae6-beff-4f78-9b7b-b3ce8e9429b6)
+
 
 
 
