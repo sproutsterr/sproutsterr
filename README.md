@@ -3,7 +3,8 @@
 
 hello!!! hii!!!! please call me sprout!
 
-![39551248-kcbq8ied-v4](https://github.com/user-attachments/assets/38a81b28-5332-4fbf-abf0-3cfff96483be)
+![39030826-gjidpwv4-v4](https://github.com/user-attachments/assets/1f3e840d-a9f9-428e-b216-7e4ea007706b)
+
 
 | multifandom geek + artist & VA | lvl 14 | fictkin!!! | audhd & dyslexia, pls be patient w/ me |
 
@@ -16,4 +17,5 @@ i'm normally seen on ashes town w/ my friends!! if you see me running around or 
 
 i can be VERY unfiltered if im comfortable w/ you, pls let me know if i make you uncomfy
 
-![39030826-gjidpwv4-v4](https://github.com/user-attachments/assets/99e64c49-4991-4613-9052-7d75f2d72432)
+![39551248-kcbq8ied-v4](https://github.com/user-attachments/assets/3473f85c-5333-443f-a77a-a9cc1b84bb80)
+
