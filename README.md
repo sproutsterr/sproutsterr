@@ -31,7 +31,7 @@ i allow c+h all the time unless im roleplaying
 
 ### 𝘪𝘧 𝘺𝘰𝘶 𝘴𝘦𝘦 𝘮𝘦 𝘳𝘶𝘯𝘯𝘪𝘯𝘨 𝘢𝘳𝘰𝘶𝘯𝘥 𝘢𝘴𝘩𝘦𝘴 𝘵𝘰𝘸𝘯, 𝘥𝘰𝘯𝘵 𝘣𝘦 𝘢𝘧𝘳𝘢𝘪𝘥 𝘵𝘰 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵!!! 𝘥𝘰𝘯𝘵 𝘸𝘰𝘳𝘳𝘺, 𝘪 𝘥𝘰𝘯𝘵 𝘣𝘪𝘵𝘦 𝘭𝘰𝘭
 
-super sigma oomf mentions; pumkin, tim, elliot, jeffcent, zahrada, ares, and more!!  
+super sigma oomf mentions; pumkin, isaac, tim, elliot, jeffcent, zahrada, ares, and more!!  
 
 ![divider-aesthetic](https://github.com/user-attachments/assets/0afddf8b-b747-40a8-8a1e-3568197c931a)
 
