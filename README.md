@@ -1,14 +1,14 @@
 
-![pet-pet-petpet (1)](https://github.com/user-attachments/assets/7a92b758-c19a-4015-b38c-6dc97fd70f6c)
+![pet-pet-petpet](https://github.com/user-attachments/assets/6ad1ed1d-31c5-4cf1-a346-c863107a645b)
 
 # ★ 𝙏𝙞𝙢𝙚 𝙩𝙤 𝙞𝙣𝙩𝙧𝙤𝙙𝙪𝙘𝙚 𝙢𝙮𝙨𝙚𝙡𝙛 ! ★ ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/fae28f5c-77c7-414d-b076-e271f7c7c8fe)
 
 ![coquette-aesthetic](https://github.com/user-attachments/assets/0afb7258-fb90-4618-aa8a-f06ae62928c4)
 
 
-### <ins> pls refer to me as cosmo or two time!! <ins>
+### <ins> hellooo!! im sprout, otherwise known on ashes.town as cosmo or two time <ins>
 
-𝘩𝘦/𝘩𝘪𝘮, 𝘪𝘵/𝘪𝘵𝘴 𝘰𝘳 𝘵𝘩𝘦𝘺/𝘵𝘩𝘦𝘮
+𝘵𝘩𝘦𝘺/𝘵𝘩𝘦𝘮 𝘰𝘳 𝘪𝘵/𝘪𝘵𝘴
 
 𝘼𝙪𝘿𝙃𝘿 + 𝙙𝙮𝙨𝙡𝙚𝙭𝙞𝙖 + 𝙨𝙤𝙢𝙚𝙬𝙝𝙖𝙩 𝙝𝙮𝙥𝙚𝙧 𝙞𝙣𝙨𝙤𝙢𝙣𝙞𝙖 (𝙙𝙤𝙣𝙩 𝙗𝙚 𝙨𝙪𝙧𝙥𝙧𝙞𝙨𝙚𝙙 𝙞𝙛 𝙞𝙢 𝙪𝙥 𝙝𝙚𝙡𝙡𝙖 𝙡𝙖𝙩𝙚)
 
